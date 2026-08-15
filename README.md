@@ -1,1 +1,1 @@
-# My-Demo
+# Narok North Bursary Platform
